@@ -10,4 +10,4 @@ Estudiante de ingeniería biomédica 🦾 👩‍🦽
 
 | Este perfil ha sido creado con el proposito de crear, subir tareas, quizes, laboratorios proyectos parciales y finales de la materia porgramación para ingenieros de la Universidad Latina de Panamá. 
 
-En mi repositorio llamado (pon el nombre aqui) podras encontrar las diferentes carpetas que te dejaran ver las distintas actividades que hemos realizado en el transcurso del cuatrimeste. | 
+En mi repositorio llamado Progamaci-n-GabsC podras encontrar las diferentes carpetas que te dejaran ver las distintas actividades que hemos realizado en el transcurso del cuatrimeste. | 
