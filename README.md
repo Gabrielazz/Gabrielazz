@@ -5,7 +5,8 @@ Estudiante de ingeniería biomédica 🦾 👩‍🦽
 18 años 🔞
 
 
-![1__O2d9cxKSwpQwhkAfPElQQ](https://user-images.githubusercontent.com/106856732/175762687-a6f5f973-062b-4466-a4b3-d07e2e475dc1.gif)
+![MarvelousFlawlessLangur-max-1mb](https://user-images.githubusercontent.com/106856732/175763684-c225fd8c-ae13-46a0-92cf-8e711e5df881.gif)
+
 
 
 | Este perfil ha sido creado con el proposito de crear, subir tareas, quizes, laboratorios proyectos parciales y finales de la materia programación para ingenieros de la Universidad Latina de Panamá. 
