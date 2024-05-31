@@ -1,8 +1,8 @@
 ### (print) Hola mundo... o ¿cómo era? 🤔
 
-Estudiante de ingeniería biomédica 🦾 👩‍🦽
+Estudiante de ingeniería electrónica y telecomunicaciones 🦾 👩‍🦽
 
-18 años 🔞
+20 años 🔞
 
 
 ![MarvelousFlawlessLangur-max-1mb](https://user-images.githubusercontent.com/106856732/175763684-c225fd8c-ae13-46a0-92cf-8e711e5df881.gif)
